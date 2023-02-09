@@ -1,4 +1,4 @@
 # FisComp_23-2
-Rich
+Rich :D
 
 Clases de Fisica Computacional con los alumnos chiditos :D
