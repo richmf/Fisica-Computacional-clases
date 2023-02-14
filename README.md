@@ -3,4 +3,4 @@ El Rich :D
 
 Clases de Fisica Computacional con los alumnos chiditos :p
 
-2023
+Todos contentos en la clase
